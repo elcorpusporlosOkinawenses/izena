@@ -17,3 +17,5 @@ unu tabi, iruiruunu fanashi chichootashiga, uhookunu toinu njiye chaawitan.
 "Loochoo nu chunchaa nu tamiya aranaatii?"
 unte fturu, deutschnu gottingente gakumun shinshii gakushiitaa nu machine kangeeyoowiindoo.
 unte futu kangee gannaa, mun kadai fanashi mungatai shichai, meenaachi daigakunke kayudai, niibui shichai, deejina ichunahashe.
+Haisai, kuuya 8gwachi mikka, achaane unu nachinu gakumunnu chiduiya uwayawira. 
+matatakumani owatte shimatta.
